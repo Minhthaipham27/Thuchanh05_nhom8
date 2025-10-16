@@ -18,3 +18,14 @@ Infographic được tạo bằng **AI (Canva AI)**, thể hiện các lợi íc
 - **Giấy phép:** Creative Commons Attribution (CC BY 4.0)
 
 > © 2025 - Infographic tạo bởi Canva AI(AI hỗ trợ).
+
+--------------------------------------------------
+
+---
+🧾 Bản quyền:
+Video tạo bởi CapCut.
+Tài liệu từ Pexels và FreeSound (CC0).
+Giấy phép: Creative Commons Attribution (CC BY 4.0)
+---
+
+> 
