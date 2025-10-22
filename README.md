@@ -6,6 +6,7 @@
 - Video hướng dẫn nhiệm vụ 2.2 (MP4)
 - File HTML nhiệm vụ 3.1  
 Link microsoft teams:
+
 https://teams.microsoft.com/l/channel/19%3A89gLGzNzvILQzpJWFGd2MvI843y53toCE4LS4Q_Ed2s1%40thread.tacv2/General?groupId=35763f01-a550-4bea-8c8a-4c1ae54942ed&tenantId=80a906da-b4ca-4ccb-81c3-d0b567529534
 ## Nguồn sử dụng AI
 - Canva AI
